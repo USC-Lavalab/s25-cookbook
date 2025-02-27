@@ -1,1 +1,2 @@
 - **Cole:** actually read the entire recipe. like fr. don't skim the instructions.
+- **Rida** let the knafeh soak in the sugar syrup for a day for best results :P
