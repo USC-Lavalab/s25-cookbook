@@ -1,1 +1,2 @@
 - **Cole:** actually read the entire recipe. like fr. don't skim the instructions.
+- **Sonya:** Please don't be too fast to judge the cookies RIGHT out of the oven. They need time to sit.
