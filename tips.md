@@ -1,2 +1,3 @@
 - **Brennen:** Most of cooking is prep work. So, have all the ingredients and necessary utensils handy.
 - **Cole:** actually read the entire recipe. like fr. don't skim the instructions.
+- **Rida** Let the sugar syrup soak overnight for best results :P
