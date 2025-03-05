@@ -1,1 +1,2 @@
 - **Cole:** actually read the entire recipe. like fr. don't skim the instructions.
+- **Ethan:** Don't use old sugar. And never trust "eyeballing it" :)
